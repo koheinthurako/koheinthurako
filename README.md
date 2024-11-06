@@ -5,7 +5,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=koheinthurako&label=Profile%20views&color=0e75b6&style=flat" alt="koheinthurako" /> </p>
 
-- 📫 How to reach me **captainthura99@gmail.com**
+- 📫 How to reach me **thetzawhein9999@gmail.com**
 
 <p align="left">
 </p>
